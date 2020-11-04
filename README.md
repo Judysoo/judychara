@@ -12,7 +12,7 @@
 # 2016년
 <img src=https://blogfiles.pstatic.net/20141221_246/knowledgeist_1419166994002sD3MQ_PNG/adad.png></img>
 # 2017년
-<img https://blogfiles.pstatic.net/MjAyMDExMDRfMTMy/MDAxNjA0NDUwNDQyNjQ3.SzatvO4ubwRWvAD3ngjNsGNHSIq-FEphFpmKlOy0NK4g.iazmQdIlraE_KMf3LTHbM6PUBtPz7uHyQpRmjajJz1kg.PNG.knowledgeist/magiclayla.png?type=w2></img>
+<img  src=https://blogfiles.pstatic.net/MjAyMDExMDRfMTMy/MDAxNjA0NDUwNDQyNjQ3.SzatvO4ubwRWvAD3ngjNsGNHSIq-FEphFpmKlOy0NK4g.iazmQdIlraE_KMf3LTHbM6PUBtPz7uHyQpRmjajJz1kg.PNG.knowledgeist/magiclayla.png?type=w2></img>
 <p> 팬 일러스트 </p>
 # 2018년
 
