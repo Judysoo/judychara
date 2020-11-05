@@ -2,38 +2,35 @@
 2012년부터 그렸던 캐릭터 일러스트를 소개합니다.
 
 # 2012년
-<img src="
-<img src="
-<img src="
-<img src="
-<img src="
-<img src="
-<img src="
+<img src="https://blogfiles.pstatic.net/20140805_213/knowledgeist_1407234317468Gd2gk_PNG/1382233917154_Sketch30523640.png" width="20%"></img> 
+<img src="https://blogfiles.pstatic.net/20140805_230/knowledgeist_1407238990212iQTXk_JPEG/BZCZdg0CQAAhnzR.jpg" width="20%"></img> 
+<img src="https://blogfiles.pstatic.net/20140805_284/knowledgeist_1407234605997sJ4XW_PNG/BbsBK_uCUAEhLtn.png" width="21%"></img> \
 
 # 2013년
-
+<img src="https://postfiles.pstatic.net/20140428_62/knowledgeist_1398696904918pgs2c_PNG/140424_reven_c.png?type=w2" width="15%"></img>
+<img src="https://postfiles.pstatic.net/20141003_206/knowledgeist_1412321389039Ny1Qz_PNG/Eugenie_au.png?type=w2" width="30%"></img>
+                                                                                                                              
 # 2014년
 
-<img src="https://blogfiles.pstatic.net/20161009_58/knowledgeist_1475979351662DFkpl_PNG/Ct16kNqUEAAXgzr.png" width="30%"></img> \
+<img src="https://blogfiles.pstatic.net/20161009_58/knowledgeist_1475979351662DFkpl_PNG/Ct16kNqUEAAXgzr.png" width="22%"></img> 
+<img src="https://blogfiles.pstatic.net/20161012_159/knowledgeist_1476224942548dPDbe_PNG/Daila1.png" width="20%"></img>
+<img src="https://postfiles.pstatic.net/20141123_248/knowledgeist_1416733780710StBEO_JPEG/adasd.png?type=w2" width="25%"></img>
 
 # 2015년
+<img src="https://blogfiles.pstatic.net/20141221_153/knowledgeist_1419166992628fUBuO_PNG/%B3%AA%C0%F0.png" width="20%"></img>
+<img src="https://blogfiles.pstatic.net/20141230_254/knowledgeist_1419917474241j7lN3_PNG/nagjababara.png?type=w2" width="20%"></img>
+<img src="https://blogfiles.pstatic.net/20150124_78/knowledgeist_1422088383083LnkOv_PNG/final_nadja.png" width="25%"></img>\
+<img src="https://blogfiles.pstatic.net/20141221_246/knowledgeist_1419166994002sD3MQ_PNG/adad.png" width="30%"></img>
 
 # 2016년
-<img src="
-<img src="
-<img src="
-<img src="
-<img src="
-<img src="
+<img src="https://postfiles.pstatic.net/20160718_90/knowledgeist_1468768704802fASyV_JPEG/IMG_1na8km.jpg?type=w2" width="30%"></img>
+<img src="https://blogfiles.pstatic.net/20141221_246/knowledgeist_1419166994002sD3MQ_PNG/adad.png" width="30%"></img>
+<img src="https://postfiles.pstatic.net/20150608_161/knowledgeist_1433753723425tS1s7_PNG/kirin_dc_complete.png?type=w2" width="30%"></img>
+<img src="https://blogfiles.pstatic.net/20161012_248/knowledgeist_14762249427477hpfS_PNG/dalia__nn.png" width="30%"></img>
 
-<img src="https://blogfiles.pstatic.net/20141221_246/knowledgeist_1419166994002sD3MQ_PNG/adad.png" width="30%"></img> \
-
-<img src="https://blogfiles.pstatic.net/20161015_285/knowledgeist_1476483432177Xzf97_PNG/%C4%DA%C4%DA%B3%AA.png" width="30%"></img> \
-
-<img src="https://blogfiles.pstatic.net/20161009_142/knowledgeist_1475979352134m2lJ7_PNG/%BF%B5%C8%F1.png" width="30%"></img> \
-
-<img src="https://blogfiles.pstatic.net/20160928_102/knowledgeist_1474994617540HacGS_PNG/34bd28_37475811e3374747893d9375c017c529-mv2.png" width="30%"></img> \
-                                                                                          
+<img src="https://blogfiles.pstatic.net/20161015_285/knowledgeist_1476483432177Xzf97_PNG/%C4%DA%C4%DA%B3%AA.png" width="30%"></img> 
+<img src="https://blogfiles.pstatic.net/20161009_142/knowledgeist_1475979352134m2lJ7_PNG/%BF%B5%C8%F1.png" width="30%"></img> 
+<img src="https://blogfiles.pstatic.net/20160928_102/knowledgeist_1474994617540HacGS_PNG/34bd28_37475811e3374747893d9375c017c529-mv2.png" width="30%"></img>                                                                                           
 # 2017년
 <img src="https://blogfiles.pstatic.net/MjAyMDExMDRfMTMy/MDAxNjA0NDUwNDQyNjQ3.SzatvO4ubwRWvAD3ngjNsGNHSIq-FEphFpmKlOy0NK4g.iazmQdIlraE_KMf3LTHbM6PUBtPz7uHyQpRmjajJz1kg.PNG.knowledgeist/magiclayla.png?type=w2" width="30%"></img> \
 
@@ -50,7 +47,6 @@
 <img src="https://blogfiles.pstatic.net/MjAyMDExMDRfMTQ2/MDAxNjA0NDUwNDQyODMw.QLjxwhQk83teB0bjSjx6oruR0pfBrOCt5QkNTXCcMZAg.4YhgTwJ9BCvh40TdVguX-eCm2AiWOyYztUHb4YsmVIMg.PNG.knowledgeist/%E3%84%B9%E3%85%87%E3%84%B91.png?type=w2" width="30%"></img>\
 
 <img src="https://blogfiles.pstatic.net/MjAxNjExMzBfMjU2/MDAxNDgwNTA3NDc1Mzg4.OaNuR7v4uyR6UW-RQ1cxPwH0AedjAYXtrgslALhyJe0g.RSXJwmCX85Zijkksun_Ut-13oi5mzaOuOi1wEFkZAlwg.PNG.knowledgeist/111111111111111111.png" width="30%"></img>\
-
 
 # 2018년
 
