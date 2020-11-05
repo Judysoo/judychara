@@ -26,10 +26,10 @@
 
 # 2016년
 
-<img src="https://blogfiles.pstatic.net/20160928_102/knowledgeist_1474994617540HacGS_PNG/34bd28_37475811e3374747893d9375c017c529-mv2.png" width="10%"></img>     
+<img src="https://blogfiles.pstatic.net/20160928_102/knowledgeist_1474994617540HacGS_PNG/34bd28_37475811e3374747893d9375c017c529-mv2.png" width="10%"></img>
+<img src="https://postfiles.pstatic.net/20160718_246/knowledgeist_1468768036353uEhNq_PNG/Nympa.png?type=w2" width="10%"></img> 
+<img src="https://postfiles.pstatic.net/MjAxNjExMDZfNyAg/MDAxNDc4NDA5MTE3MDQy.1IA-nVYzRG29jh2ZLZngZZYRT3D3VsAOSjri2zrvM04g.uUdJiMN8xSZTJ7VJyVanyxaV32zPm_YxK4VJeLtHufUg.PNG.knowledgeist/dfddfd.png?type=w2" width="10%"></img> \
 <img src="https://blogfiles.pstatic.net/20161015_285/knowledgeist_1476483432177Xzf97_PNG/%C4%DA%C4%DA%B3%AA.png" width="10%"></img> 
-<img src="https://postfiles.pstatic.net/20160718_246/knowledgeist_1468768036353uEhNq_PNG/Nympa.png?type=w2" width="10%"></img> \
-<img src="https://postfiles.pstatic.net/MjAxNjExMDZfNyAg/MDAxNDc4NDA5MTE3MDQy.1IA-nVYzRG29jh2ZLZngZZYRT3D3VsAOSjri2zrvM04g.uUdJiMN8xSZTJ7VJyVanyxaV32zPm_YxK4VJeLtHufUg.PNG.knowledgeist/dfddfd.png?type=w2" width="10%"></img> 
 <img src="https://blogfiles.pstatic.net/20161009_142/knowledgeist_1475979352134m2lJ7_PNG/%BF%B5%C8%F1.png" width="10%"></img> 
 
 
