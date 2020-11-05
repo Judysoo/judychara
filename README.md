@@ -7,9 +7,9 @@
 <img src="https://blogfiles.pstatic.net/20140805_284/knowledgeist_1407234605997sJ4XW_PNG/BbsBK_uCUAEhLtn.png" width="21%"></img> \
 
 # 2013년
-<img src="https://postfiles.pstatic.net/20140428_62/knowledgeist_1398696904918pgs2c_PNG/140424_reven_c.png?type=w2" width="15%"></img>
-<img src="https://postfiles.pstatic.net/20141003_206/knowledgeist_1412321389039Ny1Qz_PNG/Eugenie_au.png?type=w2" width="30%"></img>
-<img src="https://blogfiles.pstatic.net/20161009_58/knowledgeist_1475979351662DFkpl_PNG/Ct16kNqUEAAXgzr.png" width="30%"></img> 
+<img src="https://postfiles.pstatic.net/20140428_62/knowledgeist_1398696904918pgs2c_PNG/140424_reven_c.png?type=w2" width="13%"></img>
+<img src="https://postfiles.pstatic.net/20141003_206/knowledgeist_1412321389039Ny1Qz_PNG/Eugenie_au.png?type=w2" width="25%"></img>
+<img src="https://blogfiles.pstatic.net/20161009_58/knowledgeist_1475979351662DFkpl_PNG/Ct16kNqUEAAXgzr.png" width="25%"></img> 
                                                                                                                               
 # 2014년
 <img src="https://blogfiles.pstatic.net/20161012_159/knowledgeist_1476224942548dPDbe_PNG/Daila1.png" width="25%"></img>
@@ -17,13 +17,12 @@
 <img src="https://postfiles.pstatic.net/20141123_248/knowledgeist_1416733780710StBEO_JPEG/adasd.png?type=w2" width="25%"></img>
 
 # 2015년
-<img src="https://blogfiles.pstatic.net/20141221_246/knowledgeist_1419166994002sD3MQ_PNG/adad.png" width="20%"></img>\
 <img src="https://blogfiles.pstatic.net/20141221_153/knowledgeist_1419166992628fUBuO_PNG/%B3%AA%C0%F0.png" width="20%"></img>
 <img src="https://blogfiles.pstatic.net/20141221_88/knowledgeist_1419166993303TOR9l_PNG/nadja_2nd__.png" width="30%"></img>
 <img src="https://blogfiles.pstatic.net/20150120_136/knowledgeist_1421730024701ailCW_PNG/nadja3rd_%282%29.png" width="30%"></img>
 <img src="https://blogfiles.pstatic.net/20150614_123/knowledgeist_1434213795564sK86a_PNG/kirin_dc_complete_____.png" width="30%"></img>
 <img src="https://blogfiles.pstatic.net/20161012_248/knowledgeist_14762249427477hpfS_PNG/dalia__nn.png" width="30%"></img>
-<img src="https://blogfiles.pstatic.net/20150623_290/knowledgeist_1435036740001d6fUW_PNG/%A4%BB%A4%BC%A4%BA%A4%BC%A4%BB%A4%BC%A4%BB%A4%BA%A4%BB%A4%BA%A4%BB%A4%BC.png" width="20%"></img>
+
 
 # 2016년
 <img src="https://blogfiles.pstatic.net/20161009_142/knowledgeist_1475979352134m2lJ7_PNG/%BF%B5%C8%F1.png" width="10%"></img> 
@@ -42,12 +41,12 @@
 
 # 2018년
 
-<img src="https://blogfiles.pstatic.net/MjAyMDExMDRfOTAg/MDAxNjA0NDUwNDQyMjYz.hmWKjb8MZehPUmmqAMb_a7gxiTjtq6yh6FxApfbYm0gg.stbHT7UKptGayBOl8bUxS5Q2HvE8QVvnymDMZLlCWRkg.PNG.knowledgeist/new_avavv.png?type=w2" width="30%"></img>\
+<img src="https://blogfiles.pstatic.net/MjAyMDExMDRfOTAg/MDAxNjA0NDUwNDQyMjYz.hmWKjb8MZehPUmmqAMb_a7gxiTjtq6yh6FxApfbYm0gg.stbHT7UKptGayBOl8bUxS5Q2HvE8QVvnymDMZLlCWRkg.PNG.knowledgeist/new_avavv.png?type=w2" width="20%"></img>\
 
 
 # 2019년
 
-<img src="https://blogfiles.pstatic.net/MjAyMDExMDRfMjAg/MDAxNjA0NDUwNDQyNDY2.lJvI5SWuSmrdQJd3ofZpSdw_vSIQ_dotAOrXqQ_g7uwg.WUct3xZGIJvdeQHZRroYLOcKsZkVeFTdAx5BlkpiUw8g.PNG.knowledgeist/alicia12.png?type=w2" width="30%"></img>\
+<img src="https://blogfiles.pstatic.net/MjAyMDExMDRfMjAg/MDAxNjA0NDUwNDQyNDY2.lJvI5SWuSmrdQJd3ofZpSdw_vSIQ_dotAOrXqQ_g7uwg.WUct3xZGIJvdeQHZRroYLOcKsZkVeFTdAx5BlkpiUw8g.PNG.knowledgeist/alicia12.png?type=w2" width="20%"></img>\
 
 <img src="
 " width="30%"></img>
