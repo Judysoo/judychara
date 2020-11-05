@@ -37,7 +37,7 @@
 <img src="https://blogfiles.pstatic.net/MjAyMDExMDRfMTQ2/MDAxNjA0NDUwNDQzMDM2.Kye3dVK2puWwrGveCrwmvzvDgfAx22FmnoRydw-tbjQg.H4qjoGM0voJD--7AmqsrWBripn1tKm6qHfH86x-tgVMg.PNG.knowledgeist/%EC%BF%A8_%EC%9A%B0%EC%A7%80%EC%9D%B4%EC%97%90_%EB%AC%B4%EC%B8%A0%EB%AF%B8_%ED%94%84%EB%A6%AC%ED%94%BC%EC%83%A4_%EC%B5%9C%EC%A2%85.png?type=w2" width="20%"></img>
 <img src="https://blogfiles.pstatic.net/MjAxNjExMzBfMjU2/MDAxNDgwNTA3NDc1Mzg4.OaNuR7v4uyR6UW-RQ1cxPwH0AedjAYXtrgslALhyJe0g.RSXJwmCX85Zijkksun_Ut-13oi5mzaOuOi1wEFkZAlwg.PNG.knowledgeist/111111111111111111.png" width="25%"></img>
  \
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  | 팬 일러스트 |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; | 팬 일러스트 |
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     | 팬 일러스트 |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      | 팬 일러스트 |
 
 # 2018년
 <img src="https://blogfiles.pstatic.net/MjAyMDExMDRfMTA2/MDAxNjA0NDUxMDA5ODI5.3Oeq3X10WxSq-_HNTk9x9HBKraO_Rv42IUd6AfIk-4Ug.b5TZ-39TdCS1TzVnp47pdpxoyoISzl_kYT7L2h4nWi4g.PNG.knowledgeist/asdqqw_waifu2x_art_noise3_tta_1.png?type=w2" width="20%"></img>
