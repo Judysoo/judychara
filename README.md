@@ -1,5 +1,4 @@
-# judy의 일러스트 포트폴리오
-2012년부터 그렸던 캐릭터 일러스트 일부를 소개합니다.
+# judy의 캐릭터 일러스트
 
 # 2012년
 <img src="https://blogfiles.pstatic.net/20140805_213/knowledgeist_1407234317468Gd2gk_PNG/1382233917154_Sketch30523640.png" width="20%"></img> 
